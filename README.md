@@ -2,7 +2,7 @@
 
 
 
-**By Latif Atçı & Berkay Yalçın**
+**Latif Atci & Berkay Yalcin**
 
 ---
 
